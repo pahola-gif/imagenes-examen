@@ -1,2 +1,0 @@
-# imagenes-examen
-imagenes-examen
